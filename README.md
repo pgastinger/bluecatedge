@@ -1,1 +1,1 @@
-# bluecatedge
+# This domain is blocked
